@@ -1,5 +1,4 @@
 # README.md
-About me! Please Reade in the CODE view.
 
 A proven and recognized professional with skilled client interaction and an emphasis on providing superior customer service. Proven to work closely with coworkers for effective data management. Skilled in document digitization, office modernization and data organization for enhanced productivity.
  
